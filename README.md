@@ -3,7 +3,9 @@ African casino players can enjoy countless slot machines at Volcanic Slots since
 
 ## What I liked here?
 o No deposit bonus R250
+
 o Bonus up to R7,777 for first 3 deposits
+
 o Well-designed loyalty program
 
 ## Slots and games
